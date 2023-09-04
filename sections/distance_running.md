@@ -8,4 +8,4 @@
 
 ## Sections
 - [Hook](hook.md)
-- [Personal Story](personal_story.md)
+- [Personal History](personal_history.md)
