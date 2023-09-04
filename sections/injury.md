@@ -2,7 +2,7 @@
 
 Running is hard and it hurts. On most days my mind is fully committed to the
 ritual of running by my body rebels, and sometimes hard. At the beginning of 
-each body starts in a state of discomfort until it has settled into acceptance.
+each run body starts in a state of discomfort until it has settled into acceptance.
 Usually by halftime all the body niggles have settled in line with my mind. 
 For me, most discomfort I suppose stems from the sedentary IT work day, and most
 of my niggles are digestive in nature. Never trust a fart after about mile 8.
