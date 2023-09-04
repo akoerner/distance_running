@@ -2,7 +2,7 @@
 Physical activity as an important component to my life begin around the age of 
 10. I was an awkward and overweight redhead that experienced extreme bullying. 
 Around this time I was guided into the sport of collegiate wrestling. Wrestling
-and, in turn, physical activity begin as toot leveraged to fit in. I lost 
+and, in turn, physical activity begin as tool that I leveraged to fit in. I lost 
 weight, gained personal confidence, and was clearly able recognized the obvious 
 and immediate benefits of physical activity; generally, my life was improved.
 Transitioning into high school my motivations surrounding physical activity 
