@@ -79,7 +79,7 @@ and see how just far I could go.
 
 Discovering distance running has unveiled a potent meditative tool for me. It
 has taught me the art of living in the present moment. I have come to embrace
-that it is perfectly fine to allow your mind to become board, which previously 
+that it is perfectly fine to allow your mind to become bored, which previously 
 I was not comfortable with. Distance running has gifted me with heightened body awareness and mental 
 presence fostering deeper connection to my own mind and body. These profound changes
 resonated through all areas of my life. There is something unique and special
