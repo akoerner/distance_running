@@ -5,6 +5,7 @@
 ![Runner](runner.png)
 ![Runner 1](runner1.png)
 ![Runner 2](runner2.png)
+![Shoes](shoes.png)
 
 ## Sections
 - [Hook](hook.md)
