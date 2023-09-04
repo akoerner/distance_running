@@ -1,5 +1,11 @@
 ## Practical Steps to Getting Started Running
 
+Running has a low barrier for entry, gradual but steep learning curve, and a 
+high knowledge ceiling so you can grow into it to whatever depth is suitable to
+you and your life.
+
+
+
 Initially, running requires absolutely no investment in equipment. 
 
 Depending on your fitness level 
