@@ -1,6 +1,7 @@
-# Titles
+# Working Titles
 - Running from a professed non-runner 
-- Discovering the Runner Within: A Journey from A professed Non-Runner to a Distance runner 
+- Discovering the Runner Within: A Journey from A professed Non-Runner to a Distance runner
+- Discovering Your Inner Runner: A Journey from A professed Non-Runner to a Distance Runner 
 
 ![Runner](runner.png)
 ![Runner 1](runner1.png)
