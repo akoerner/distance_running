@@ -13,7 +13,7 @@
 - [Practical Steps to Getting Started](practical_steps_to_getting_started.md)
 - [Establish A Ritual](establish_a_ritual.md)
 - [The Route](the_route.md)
-- [Airplane Mode](airplane_mode.)
+- [Airplane Mode](airplane_mode.md)
 - [Be Kind To Yourself](be_kind_to_yourself.md)
 - [Hydration](hydration.md)
 - [Injury](injury.md)
