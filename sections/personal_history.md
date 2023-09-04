@@ -77,6 +77,17 @@ and I began to eagerly look forward to each session on the trail, fueled by a
 desire to discover my boundaries, engross myself deeper into the audio book,  
 and see how just far I could go.
 
+Discovering distance running has unveiled a potent meditative tool for me. It
+has taught me the art of living in the present moment. I have come to embrace
+that it is perfectly fine to allow your mind to become board, which previously 
+I was not comfortable with. Distance running has gifted me with heightened body awareness and mental 
+presence fostering deeper connection to my own mind and body. These profound changes
+resonated through all areas of my life. There is something unique and special
+about practicing the ritual of an established and mechanical habit. 
+Just going through the initial steps of putting on my running shoes noticeably reduces my stress level. 
+From the moment I take my first step out the door, my mind begins to calm, and 
+the meditative rhythm of each mile unfolds. 
+
 In this article I want to present to you the lessons I have learned about
 distance running and practical steps you could use to uncover and discover your
 own personal love for distance running.
