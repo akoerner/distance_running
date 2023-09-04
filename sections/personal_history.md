@@ -1,4 +1,4 @@
-## Personal History
+## Personal Story
 Physical activity as an important component to my life begin around the age of 
 10. I was an awkward and overweight redhead that experienced extreme bullying. 
 Around this time I was guided into the sport of collegiate wrestling. Wrestling
@@ -27,7 +27,7 @@ Despite the importance and utility of intense workouts, complete story regarding
 physical activity is far more intricate and complex as I have learned.
 
 The current chapter of this story, that I want to tell in this article, began in
-the early months of 2021, specifically in January and February, when the 
+the early months of 2020, when the 
 COVID-19 pandemic was trusted into the global consciousness. My reliable outlet,
 the gym, became inaccessible, prompting me to search for alternative outlets for
 physical activity and stress relief. While running was always familiar to me I 
